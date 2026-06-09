@@ -1,4 +1,4 @@
-
+updated Script for sol's rng offers the most advanced sol's rng Script, with aimbot and auto-sell. Perfect for dominating any match.
 
 
 
